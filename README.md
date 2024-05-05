@@ -1,3 +1,3 @@
-## Astar ft Ibrahim tech
+## ZAKAYO-MD 
 
 ## Qr + pairing code

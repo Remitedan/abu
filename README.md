@@ -1,3 +1,3 @@
-## Astar ft Ibrahim tech
+## Astar ft Ibrahim tec
 
 ## Qr + pairing code
